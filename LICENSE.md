@@ -1,10 +1,10 @@
-Personalizado CyberGhost Extensión | protección contra fugas de DNS + soporte PPTP es el mejor CyberGhost extensión con protección contra fugas de DNS y soporte PPTP. Seguro y
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/cyberghost-oe38/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 

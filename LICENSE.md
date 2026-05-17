@@ -1,10 +1,10 @@
-مخصص CyberGhost امتداد | حماية تسرب DNS + دعم PPTP هو أفضل CyberGhost امتداد مع حماية تسرب DNS و دعم PPTP. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/cyberghost-oe38/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 

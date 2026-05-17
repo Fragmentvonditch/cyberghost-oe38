@@ -1,4 +1,4 @@
-
+Personalizado CyberGhost Extensão | proteção contra vazamento de DNS + suporte PPTP é o melhor CyberGhost extensão com proteção contra vazamento de DNS e suporte PPTP. Seguro e
 
 
 

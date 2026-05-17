@@ -1,10 +1,10 @@
-Custom CyberGhost Extension | DNS leak protection + PPTP support is the best CyberGhost extension with DNS leak protection and PPTP support. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/cyberghost-oe38/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 

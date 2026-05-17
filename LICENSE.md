@@ -1,4 +1,4 @@
-
+مخصص CyberGhost امتداد | حماية تسرب DNS + دعم PPTP هو أفضل CyberGhost امتداد مع حماية تسرب DNS و دعم PPTP. آمن ومُحَسّن.
 
 
 
